@@ -1,6 +1,7 @@
 # proyek-kelompok6
 
 Alifah Alyana (2208108010047) 
+
 **#Kesan**
 Kakak dan abang cara jelasinnya enak, gak terlalu serius tapi jadinya malah menyenangkan dan tidak terlalu tegang.
 Terus walaupun materinya susah tapi pas dijelasin jadi lumayan ngerti gitu.

@@ -1,5 +1,4 @@
 # proyek-kelompok6
-Tugas UAS Alprog shift II tahun 2023
 
 # Kesan
 Kakak dan abang cara jelasinnya enak, gak terlalu serius tapi jadinya malah menyenangkan dan tidak terlalu tegang.

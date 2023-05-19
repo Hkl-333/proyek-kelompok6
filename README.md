@@ -12,3 +12,8 @@ Untuk kakak dan abang teruslah seperti itu, terus tingkatkan pengetahuan dan ket
 Selain itu, tetaplah bersikap ramah dan sabar ketika menghadapi mahasiswa/mahasiswi yang masuk lab nanti.
 Terima kasih kakak dan abang atas semua yang telah diajarkan kepada kami.
 Semoga sehat selalu dan semangat kuliahnya kakak dan abang.
+
+Heru Bagus Cahyo(2208108010053)
+
+Kesan : di lab shift b ini enak, bisa santai dan aslabnya ga terlalu kaku .
+pesan : mungkin kedepanya untuk aslab bisa bedain ketika waktu jelasin secara serius dengan ketika becanda, dikarenkan mengajarnya santai jadi terbawa yang lain ketawa, padahal di sisi lain ada yang ingin serius memahami.
